@@ -1,1 +1,1 @@
-# bot
+Mukadderat  Clanına Hoşgeldiniz..
